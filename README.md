@@ -6,3 +6,7 @@ Inspirar la creatividad y la elegancia a través de aretes de origami únicos, f
 
 **Visión:**  
 Ser una marca referente en accesorios de origami, reconocida por su innovación, compromiso con la sostenibilidad y conexión con el arte. Buscamos expandir nuestra presencia en el mercado, promoviendo la apreciación del origami como una forma de expresión única en la moda y el diseño.
+
+**Quienes somos:**  
+Nacio como un hobby, haciendo animales y flores para regalos para amigos y conocidos.
+Son hechos artesanalmente en Bogotá.
